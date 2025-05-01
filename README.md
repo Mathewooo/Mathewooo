@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Mathewooo
 - 👀 I’m interested in Music, Sports and Cars
 - 🌱 I’m currently learning Computer Science
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : matheo.bod1.26@gmail.com  
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: There are 40 millions of kangaroos in Australia, and only 3.43 millions of persons living in Uruguay. That means that if kangaroos decide to invade Uruguay, each Uruguayan would have to fight 11 kangaroos.
